@@ -63,7 +63,7 @@
 <br/>
 <br/>
 
-## YomiYuri v3
+## lexapro v3
 [Download](https://drive.proton.me/urls/ZCSYCRDKP8#JMoQa8FYcxPB)<br/>
 <br/>
 <br/>

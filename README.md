@@ -8,6 +8,21 @@
 <br/>
 <br/>
 
+## lexapro v12.2
+[Download](https://drive.proton.me/urls/WZ4CNP80SC#CgEht5Am62bO)<br/>
+<br/>
+<br/>
+
+## lexapro v12.1
+[Download](https://drive.proton.me/urls/BG1BZ337HM#AZjFnJfCj81p)<br/>
+<br/>
+<br/>
+
+## lexapro v12
+[Download](https://drive.proton.me/urls/R67057ES4C#mt20FgDPFhdG)<br/>
+<br/>
+<br/>
+
 ## lexapro v11
 [Download](https://drive.proton.me/urls/0XFZG012AR#xYYRG6ZKvdrQ)<br/>
 <br/>

@@ -8,6 +8,26 @@
 <br/>
 <br/>
 
+## lexapro v13 - NM
+[Download](https://drive.proton.me/urls/RACZH3JEKR#BdoOdwDXcwG7)<br/>
+<br/>
+<br/>
+
+## lexapro v13 - NM [Aristia]
+[Download](https://drive.proton.me/urls/RG3B4BY0H0#f2IdALXBm9BS)<br/>
+<br/>
+<br/>
+
+## lexapro v13 - DT
+[Download](https://drive.proton.me/urls/83TRCZ1Q6M#1hNF168vwuYX)<br/>
+<br/>
+<br/>
+
+## lexapro v13 - DT [WhiteCat 3.0]
+[Download](https://drive.proton.me/urls/Y2A3Q1S5JR#rBy9m35KHrPY)<br/>
+<br/>
+<br/>
+
 ## lexapro v12.2
 [Download](https://drive.proton.me/urls/WZ4CNP80SC#CgEht5Am62bO)<br/>
 <br/>
